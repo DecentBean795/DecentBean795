@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔰 アニメすきです🔰Former Activison Ambassador <br>( ＾∀＾)
+🔰 アニメすきです🔰<br>Former Activison Ambassador <br>( ＾∀＾)
 
 
 ## 🌐 Socials:
