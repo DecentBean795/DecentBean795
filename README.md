@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔰 アニメすきです🔰<br>Full Time Video Editor <br>Former Activison Ambassador <br>( ＾∀＾)
+🔰 アニメすきです🔰Former Activison Ambassador <br>( ＾∀＾)
 
 
 ## 🌐 Socials:
